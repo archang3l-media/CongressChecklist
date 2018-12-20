@@ -170,6 +170,7 @@ Event and location related emergency information is in a seperate document for t
 	- Cleaning cloth
 - Oropax or other things to plug into your ears for a good “night”'s sleep.
 - Hair dryer (in case your place/hotel doesn't supply one, or you have cool ideas to use it for hacking)
+- Box of Wet Wipes (May it be for stomach accidents, cleaning shoes quickly or  to store valuable things in your Hotel room)
 
 
 ### Cosmetics
